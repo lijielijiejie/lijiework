@@ -1,2 +1,2 @@
 # lijiework
-http://lijiejiejie.github.io/lijiework
+http://lijielijiejie.github.io/lijiework/
